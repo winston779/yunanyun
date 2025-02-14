@@ -1,6 +1,6 @@
 # 云安云机场官网地址
 
-最新地址：[云安云.app](https://128.yunanyun.app/#/register?code=aVZlMNOQ)
+最新地址：[云安云.app](https://yay520.com/login?code=aVZlMNOQ)
 
 ## 云安云介绍
 
